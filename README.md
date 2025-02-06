@@ -1,1 +1,1 @@
-# FristTry TE PONES BIEN CACHONDA PINCHE PUTITA
+# FristTry 
